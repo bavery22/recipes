@@ -21,7 +21,7 @@
 * Dry All Scallions on paper towels. These are KEPT SEPARATE and added on top.
 * Remove oil. Save!
 * Use some oil to fry eggplants in batches. -
-** cut sides down, and fry until browned and starting to soften, 2 to 3 minutes. Flip once and cook another minute on the other side.
+  * cut sides down, and fry until browned and starting to soften, 2 to 3 minutes. Flip once and cook another minute on the other side.
 * Fry Meat til done.
 * Add back eggplant and sauce.
 * Stir til sauce thickens. ~ 1-2 minutes.
