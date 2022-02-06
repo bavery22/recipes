@@ -1,4 +1,4 @@
-# Pulled Pork Korean Style
+# Pork Chili Con Chocolate
 
 ## Ingredients
 * 1 package diced pancetta, about 4 ounces
