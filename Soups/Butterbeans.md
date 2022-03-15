@@ -3,7 +3,7 @@
 # Ingredients
 * 1.5 lb bag of Large Lima Bean from https://zursunbeans.com/
 * 1 Tbs Thyme
-* 1 bay leaf
+* 4 bay leaf
 * 2 tsp gumbo file
 * 1 tsp Rd Pepper Flakes
 * 1 Tbs Black Pepper
@@ -30,6 +30,7 @@
 8. Add 2 cups hot water. Less if looks too soupy.
 9. Bring to boil, Reduce to simmer.
 10. Cook for 1.5 hours until beans are melt in mouth tender. Stir every 20 min.
+11. Adjust salt.
 
 # Variations
 ## sausage
