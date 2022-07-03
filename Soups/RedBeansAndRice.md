@@ -24,7 +24,7 @@
 *  fry bacon til crispy
 *  wilt onions and garlic(if dried, just add when add stock)  and green peppers til transparent in bacon fat, green peppers/poblanos  should be added 1/2 way through this
 *  add sausages and cook
-*  add the beans. stock, parsley,  and spices and bring to boil
+*  add the beans. stock, parsley,chopped cooked bacon slices,  and spices and bring to boil
 * simmer for ~ 2 hours stirring every 30 minutes
 *  take out ~ 1 cup of red beans and crush them with the back of a spoon and return to pot
     this thickens even better than a roux does :)
