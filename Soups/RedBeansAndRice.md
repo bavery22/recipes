@@ -2,7 +2,7 @@
 
 ## Ingredients
 * 4-5 slices bacon
-* 4 cups red kidney beans (2 pounds) (best from zursunbeans.com or Camellia (new orleans))
+* red kidney beans (1.5 pounds) (best from zursunbeans.com (1.5 lb bag)  or Camellia (new orleans))
 * 2 yellow onions
 * 4 cloves garlic or 1.5 Tbsp Penzeys freeze dried garlic
 * 2 green peppers
