@@ -1,12 +1,12 @@
-# Char Siu (chinese bbq)
+# Char Siu (chinese bbq) CORRECTED Sept 26, 2022!
 
 
 ## Ingredients
-* 3 pounds (1.4 kg) boneless pork shoulder/pork butt (select a piece with some good fat on it)
-*  1/2 cup granulated white sugar (50g) (or use equivalent of1/2 brown sugar and 1/2 white sugar)
-*  4 teaspoons salt
-*  1 teaspoon Chinese five spice powder
-*  1 teaspoon white pepper
+*  3 pounds (1.4 kg) boneless pork shoulder/pork butt (select a piece with some good fat on it) OR 3 lbs pork tenderloin
+*  1 cup granulated white sugar (50g) (or use equivalent of1/2 brown sugar and 1/2 white sugar)
+*  1/4 cup salt
+*  1 tablespoon Chinese five spice powder
+*  1 1/2 teaspoon white pepper
 *  1 teaspoon toasted sesame oil
 *  2 tablespoon Chinese rose wine (Shaoxing rice wine is a good substitute)
 ** I personally use Lustau East India Solera
