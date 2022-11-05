@@ -23,7 +23,7 @@
 
 ## Actions
 
-### quarts Le Creuset pot
+### 6-8 quart Le Creuset pot
 
 * Add oil to pot, then add the onions until they are translucent
 * Add the chicken. Brown, allowing onions to caramelize.
