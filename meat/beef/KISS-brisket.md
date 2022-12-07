@@ -1,7 +1,7 @@
 # KISS Texas Traeger Brisket
 
 ## Ingredients
-* 1 trimmed brisket flat, about 6 pounds, preferably center-cut, with a cap of fat at least 1/4 inch thick
+* 1 trimmed brisket flat, about 6 pounds, preferably center-cut, with a cap of fat at least 1/4 inch thick.  Trimming it means to try to make sure that the very hard white fat is no more than 1/4 in thick anywhere. It doesnt melt if it is mush thicker and isnt tasty. This is definitely a best effort kind of thing.
 ### For rub:
 * 3 tbsp coarse kosher salt
 * 3 tbsp freshly ground black pepper, preferably medium grind
@@ -33,3 +33,4 @@
 * Carefully unwrap the Traeger (preferably over a pan so the juices can be reserved).
 * Thinly slice across the grain. Pour the juices on top. 
 * Optional: before storing leftovers, pour mop sauce over it. 
+* This is a good video on "How to Slice Brisket". It matters. -> https://www.youtube.com/watch?v=_xtcOjDnu50&t=206s
