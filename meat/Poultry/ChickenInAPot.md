@@ -32,6 +32,6 @@
 * Meanwhile, strain chicken juices from pot through fine-mesh strainer into fat separator, pressing on solids to extract liquid; discard solids (you should have about ¾ cup juices).
 * Allow liquid to settle 5 minutes, then pour into saucepan and set over low heat.
 * Carve chicken, adding any accumulated juices to saucepan.
-* Stir lemon juice into jus to taste. Serve chicken, passing jus at table.
+* Stir lemon juice into jus to taste. Serve chicken, passing jus at table.  this acidity is needed to balance the greasiness of the au jus. do to taste but ~ 1/2 tsp per cup au jus
 
 
