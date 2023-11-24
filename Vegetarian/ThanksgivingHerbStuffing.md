@@ -35,3 +35,5 @@
 * 6. I like to end it with broiling it to brown the top. BE VERY CAREFUL TO WATCH IT IF YOU DO THIS SO IT DOESNT
       SET OFF THE FIRE ALARM AND BURN.
 
+Note:
+Original source:https://www.loveandlemons.com/stuffing-recipe/
