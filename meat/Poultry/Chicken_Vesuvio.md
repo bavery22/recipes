@@ -20,11 +20,11 @@
 
 * FYI the potoates have an initial bake while the chicken is browned on the stovetop.
 
-*  1  Heat oven to 425 degrees convection.
-*  2  In 13" x 9" baking dish or roasting pan with tall sides, toss potatoes with the oregano and a little over half the olive oil. 
-*  3  Potatoes can be seasoned with salt and pepper. Spread in a mostly even layer. 
-*  4  Bake for 15 minutes, then gently toss and bake for another ~15 minutes.
-*  5  Remove from oven when the edges begin to brown, and are still firm yet can be pierced with a fork.
+* Step 1 Heat oven to 425 degrees convection.
+* Step 2 In 13" x 9" baking dish or roasting pan with tall sides, toss potatoes with the oregano and a little over half the olive oil. 
+* Step 3 Potatoes can be seasoned with salt and pepper. Spread in a mostly even layer. 
+* Step 4 Bake for 15 minutes, then gently toss and bake for another ~15 minutes.
+* Step 5 Remove from oven when the edges begin to brown, and are still firm yet can be pierced with a fork.
 
 *  6 In the meantime, season chicken with thyme, salt and pepper/shallot pepper.
 *  7 Heat 12" large skillet with rest of olive oil over medium-high until oil shimmers.
